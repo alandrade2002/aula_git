@@ -3,6 +3,6 @@
 ALEX ALEX ALEXt
 
 
-VAI A MERDA!!!!
+COMO VAI!!!!
 
-VAI VOCE!!!!
+TO BEM!!!
